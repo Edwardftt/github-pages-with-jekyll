@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Hi im working on some new stuff
 
-I'm glad you are here. I plan to talk about ...
+I have just started working on Github and working on new things to imrpove my skills.
